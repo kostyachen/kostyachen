@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kostyachen
+- 👋 Hi, I’m @kostyachen eth
 - 👀 I’m interested in computers
 - 🌱 I’m currently learning What is defi
 - 💞️ I’m looking to collaborate on all
