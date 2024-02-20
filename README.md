@@ -5,4 +5,4 @@
 - 📫 How to reach me white and black and yellow and white and pink
 - i want to be forgiven
 - hodl
-- -i love stark
+- -i love stark and optimizm
