@@ -7,4 +7,4 @@
 - hodl rune metalend
 - -i love stark and optimizm pokemon
 - zkevm saga end
-- yeah. winter stop
+- yeah. winter stop land
