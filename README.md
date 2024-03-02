@@ -8,3 +8,4 @@
 - -i love stark and optimizm pokemon
 - zkevm saga end
 - yeah. winter stop land
+- favourite celo
