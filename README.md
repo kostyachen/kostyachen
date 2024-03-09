@@ -9,4 +9,4 @@
 - zkevm saga end
 - yeah. winter stop land
 - favourite celo chain and tabi
-- offchain
+- offchain labor
