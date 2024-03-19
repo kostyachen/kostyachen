@@ -8,6 +8,6 @@
 - -i love stark and optimizm pokemon
 - zkevm saga end
 - yeah. winter stop land
-- favourite celo chain and tabi
+- favourite celo chain and tabi mobi
 - offchain labor
 - hope ey popua tortuga topaz aptos chaine
