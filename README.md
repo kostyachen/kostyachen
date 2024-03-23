@@ -9,5 +9,5 @@
 - zkevm saga end
 - yeah. winter stop land
 - favourite celo chain and tabi mobi
-- offchain labor gm guys lifi
+- offchain labor gm guys lifi profile
 - hope ey popua tortuga topaz aptos chaine
