@@ -6,7 +6,7 @@
 - i want to be forgiven to linea poh
 - hodl rune metalend
 - -i love stark and optimizm pokemon
-- zkevm saga end bina
+- zkevm saga end binarius
 - yeah. winter stop land
 - favourite celo chain and tabi mobi
 - offchain labor gm guys lifi profile
