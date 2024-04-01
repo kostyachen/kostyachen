@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @kostyachen eth
 - 👀 I’m interested in computers
 - 🌱 I’m currently learning What is defi
-- 💞️ I’m looking to collaborate on all
+- 💞️ I’m looking to collaborate on all month
 - 📫 How to reach me white and black and yellow and white and pink
 - i want to be forgiven to linea poh
 - hodl rune metalend
