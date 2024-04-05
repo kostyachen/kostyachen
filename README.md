@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on all month
 - 📫 How to reach me white and black and yellow and white and pink
 - i want to be forgiven to linea poh
-- hodl rune metalend
+- hodl rune metalend island
 - -i love stark and optimizm pokemon
 - zkevm saga end binarius
 - yeah. winter stop land
