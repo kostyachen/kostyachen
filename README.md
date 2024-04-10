@@ -6,7 +6,7 @@
 - i want to be forgiven to linea poh enable
 - hodl rune metalend island brain
 - -i love stark and optimizm pokemon
-- zkevm saga end binarius option
+- zkevm saga end binarius option monkeys apes
 - yeah. winter stop land
 - favourite celo chain and tabi mobi
 - offchain labor gm guys lifi profile
