@@ -5,7 +5,7 @@
 - 📫 How to reach me white and black and yellow and white and pink
 - i want to be forgiven to linea poh enable
 - hodl rune metalend island brain
-- -i love stark and optimizm pokemon
+- -i love stark and optimizm pokemon place
 - zkevm saga end binarius option monkeys apes
 - yeah. winter stop land zeriosha
 - favourite celo chain and tabi mobi
