@@ -11,5 +11,5 @@
 - favourite celo chain and tabi mobi
 - offchain labor gm guys lifi profile
 - hope ey popua tortuga topaz aptos chaine
-- character chapter lower
+- character chapter lower power
 - new moon circle
