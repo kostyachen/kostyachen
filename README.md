@@ -13,4 +13,4 @@
 - hope ey popua tortuga topaz aptos chaine
 - character chapter lower power
 - new moon circle usdc bnb and blust
-- metriks
+- metrics moto fix
