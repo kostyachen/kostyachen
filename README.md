@@ -14,4 +14,4 @@
 - character chapter lower power
 - new moon circle usdc bnb and blust
 - metrics moto fix 21 th fox
-- nomenality penalty
+- nomenality penalty break down
