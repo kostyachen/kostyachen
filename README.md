@@ -13,5 +13,5 @@
 - hope ey popua tortuga topaz aptos chaine
 - character chapter lower power
 - new moon circle usdc bnb and blust
-- metrics moto fix 21 th fox
+- metrics moto fix 21 th fox kiya
 - nomenality penalty break down
