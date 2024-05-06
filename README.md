@@ -7,7 +7,7 @@
 - hodl rune metalend island brain global
 - -i love stark and optimizm pokemon place
 - zkevm saga end binarius option monkeys apes
-- yeah. winter stop land zeriosha
+- yeah. winter stop land zeriosha Dubai
 - favourite celo chain and tabi mobi
 - offchain labor gm guys lifi profile
 - hope ey popua tortuga topaz aptos chaine
