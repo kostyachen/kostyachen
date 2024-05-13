@@ -11,7 +11,7 @@
 - favourite celo chain and tabi mobi
 - offchain labor gm guys lifi profile
 - hope ey popua tortuga topaz aptos chaine
-- character chapter lower power
+- character chapter lower power ammount
 - new moon circle usdc bnb and blust
 - metrics moto fix 21 th fox kiya
 - nomenality penalty break down masters
