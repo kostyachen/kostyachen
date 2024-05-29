@@ -7,7 +7,7 @@
 - hodl rune metalend island brain global
 - -i love stark and optimizm pokemon place
 - zkevm saga end binarius option monkeys apes
-- yeah. winter stop land Dubai star
+- yeah. winter stop land Dubai star breaking news
 - favourite celo chain and tabi mobi
 - offchain labor gm guys lifi profile
 - hope ey popua tortuga topaz aptos chaine
