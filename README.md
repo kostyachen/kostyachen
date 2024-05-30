@@ -13,7 +13,7 @@
 - hope ey popua tortuga topaz aptos chaine
 - character chapter lower power ammount
 - new moon circle usdc bnb and blust
-- metrics moto fix 21 th fox kiya
+- metrics moto fix 21 th fox kiya potato
 - nomenality penalty break down masters
 - relax point next excel file busstop
 - mewtwo 2k lite POAp tube energy up
