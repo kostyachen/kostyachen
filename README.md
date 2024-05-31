@@ -9,7 +9,7 @@
 - zkevm saga end binarius option monkeys apes
 - yeah. winter stop land Dubai star breaking news
 - favourite celo chain and tabi mobi
-- offchain labor gm guys lifi profile
+- offchain labor gm guys lifi profile husband
 - hope ey popua tortuga topaz aptos chaine
 - character chapter lower power ammount
 - new moon circle usdc bnb and blust
