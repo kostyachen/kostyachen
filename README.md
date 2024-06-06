@@ -19,4 +19,4 @@
 - mewtwo 2k lite POAp tube energy up
 - big troll zefir kefir hungry egg pig
 - year for nonce left languange matrix
-- crocks nft library
+- crocks nft library code
