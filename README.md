@@ -16,7 +16,7 @@
 - metrics moto fix 21 th fox kiya potato
 - nomenality penalty break down masters
 - relax point next excel file busstop
-- mewtwo 2k lite POAp tube energy up
+- mewtwo 2k lite POAp tube energy up battery
 - big troll zefir kefir hungry egg pig
 - year for nonce left languange matrix
 - crocks nft library code mars cup
