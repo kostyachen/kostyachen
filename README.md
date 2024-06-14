@@ -6,7 +6,7 @@
 - i want to be forgiven to linea poh enable mini cap
 - hodl rune metalend island brain global
 - -i love stark and optimizm pokemon place
-- zkevm saga end binarius option monkeys apes
+- zkevm saga end binarius option monkeys apes give
 - yeah. winter stop land Dubai star breaking news
 - favourite celo chain and tabi mobi telecom
 - offchain labor gm guys lifi profile husband
