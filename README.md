@@ -12,7 +12,7 @@
 - offchain labor gm guys lifi profile husband
 - hope ey popua tortuga topaz aptos chaine
 - character chapter lower power ammount timeless
-- new moon circle usdc bnb and blust offer
+- new moon circle usdc bnb and blust offer cane
 - metrics moto fix 21 th fox kiya potato
 - nomenality penalty break down masters
 - relax point next excel file busstop
