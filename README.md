@@ -8,7 +8,7 @@
 - -i love stark and optimizm pokemon place
 - zkevm saga end binarius option monkeys apes give
 - yeah. winter stop land Dubai star breaking news
-- favourite celo chain and tabi mobi telecom
+- favourite celo chain and tabi mobi telecom water
 - offchain labor gm guys lifi profile husband
 - hope ey popua tortuga topaz aptos chaine
 - character chapter lower power ammount timeless
