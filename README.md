@@ -5,7 +5,7 @@
 - 📫 How to reach me white and black and yellow and white and pink
 - i want to be forgiven to linea poh enable mini cap
 - hodl rune metalend island brain global swap
-- -i love stark and optimizm pokemon place rich
+- -i love stark and optimizm pokemon clone place rich
 - zkevm saga end binarius option monkeys apes give
 - yeah. winter stop land Dubai star breaking news
 - favourite celo chain and tabi mobi telecom water
