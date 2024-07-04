@@ -14,7 +14,7 @@
 - character chapter lower power ammount timeless
 - new moon circle usdc bnb and blust offer cane
 - metrics moto fix 21 th fox kiya potato
-- nomenality penalty break down masters
+- nomenality penalty break down masters margarites
 - relax point next excel file more busstop
 - mewtwo 2k lite POAp tube energy up battery
 - big troll zefir kefir hungry egg pig slime
