@@ -7,7 +7,7 @@
 - hodl rune metalend island brain global swap
 - -i love stark and optimizm pokemon clone place rich
 - zkevm saga end binarius option monkeys apes give local
-- yeah. winter stop land Dubai star breaking news
+- yeah. winter stop land Dubai star breaking news join
 - favourite celo chain and tabi mobi telecom water
 - offchain labor gm guys lifi profile husband
 - hope ey popua tortuga topaz aptos chaine
