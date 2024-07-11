@@ -20,4 +20,4 @@
 - big troll zefir kefir hungry egg pig slime
 - year for nonce left languange matrix planet
 - crocks nft library code mars cup quidish
-- tower edit drip mitosis project puff
+- tower edit drip mitosis project puff stake
