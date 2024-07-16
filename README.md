@@ -11,7 +11,7 @@
 - favourite celo chain and tabi mobi telecom water
 - offchain labor gm guys lifi profile husband
 - hope ey popua tortuga topaz aptos chaine analize
-- character chapter lower power ammount timeless
+- character chapter lower power ammount timeless steel
 - new moon circle usdc bnb and blust offer canetel
 - metrics moto fix 21 th fox kiya potato
 - nomenality penalty break down masters margarites
